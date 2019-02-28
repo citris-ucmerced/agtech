@@ -1,1 +1,1 @@
-CITRIS @ UC Merced's Cyber Aware Day
+CITRIS @ UC Merced's AgFoodTech Week
